@@ -1,0 +1,5 @@
+Place chocolate in a large bowl.
+In a medium saucepan, boil water and sugar over medium heat. Once sugar has melted, pour the hot syrup over the chocolate. Let stand for 30 seconds, then mix until chocolate has melted and the batter is smooth. If the chocolate hasn’t fully melted, microwave the mixture for 15-20 seconds. Stir in liquor of choice. If mixture is warm, leave on the counter until it reaches room temperature.
+In a mixer bowl, beat heavy cream and instant coffee until soft peaks form. Gently fold half of the whipped cream into the chocolate mixture until combined, then the remaining whipped cream until combined and smooth. Divide into serving cups.
+Chill the mousse until it's set. It will become quite firm after long refrigeration, so take it out of the fridge 15-20 minutes before serving.
+Store mousse in the fridge, covered with plastic wrap, for up to 3 days.
